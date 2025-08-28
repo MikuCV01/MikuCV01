@@ -9,6 +9,9 @@ stamp mood board or whatever idk ![typos](https://github.com/user-attachments/as
 ![tumblr_2904f5400a8836f0bace80c6ad524771_47ddc94c_100](https://github.com/user-attachments/assets/5cb1c16f-c344-4e6a-8d41-7812196b5cf5)<img width="99" height="56" alt="tumblr_inline_pgraffnuNe1v11djx_1280" src="https://github.com/user-attachments/assets/13dfdc40-5f0d-4e41-a399-35e5c00b71cc" />![mikuapproved](https://github.com/user-attachments/assets/d61a155c-a2d3-40f1-8dc4-780c96dd8103)<img width="150" height="100" alt="D6k5dCv" src="https://github.com/user-attachments/assets/ea1d2821-139d-4d22-8118-cb2cb934b8c8" />
 <img width="102" height="55" alt="dbssspy-4b20ac02-5ca1-4f06-955d-fa8f50999493" src="https://github.com/user-attachments/assets/e333bf7b-d011-4c41-afe3-7a2d3fa6e921" />![e17](https://github.com/user-attachments/assets/a7b62722-de3a-444c-89ea-6321ca72edc5)<img width="99" height="57" alt="f3384d1e" src="https://github.com/user-attachments/assets/a11cff2c-7f1f-4db9-93e6-0bf199d7a8ff" />![linkin_park_stamp_by_ignisalatus_d1ueuwo-fullview](https://github.com/user-attachments/assets/376098ce-5dae-4058-9c88-b70a1d5541cb)![d52xqo9-264249cd-bbbf-4786-9b84-55b7e040e7d3](https://github.com/user-attachments/assets/98d790cd-5b2c-45fb-a838-776301bc38ab)
 
+<img width="445" height="445" alt="butt" src="https://github.com/user-attachments/assets/47c7e90b-fd0f-44dc-92e7-18fac5331b92" />
+
+
 
 
 
