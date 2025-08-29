@@ -11,7 +11,7 @@ for those too lazy to check out mu rentry
 
 (◞‸ ◟)💧 DID/INTROJECT/IRL + PRO/COM SHIPPING ANTI!!!!!!!!!! also idc abt ur neopronouns........ bigots, toxic ppl and trump supporters dni
 
-( ˶ˆᗜˆ˵ ) my vocaloid hyperfixation has lasted abt 6 years i can name almost every vocaloid utau and synth v, try me.
+( ˶ˆᗜˆ˵ ) my vocaloid hyperfixation has lasted abt 6 years i can name almost every vocaloid and vipperloid utau as well as some synthvs, try me.
 
 ≽^-⩊-^≼ artist.......... a bad one but nonetheless.....
 
