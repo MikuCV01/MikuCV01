@@ -6,7 +6,7 @@ for those too lazy to check out mu rentry
 
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
-₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾ MIKU OR SPOINGLE!!!!!!!!!! HE/HIM TRANS MAN MEN KISSER!!!!!! POLISH(but i speak mostly english)!!!!!!!!!! i think i might have bpd but until i'll be able to get a diagnosis, take it with a grain of salt or whatever. (keyword here is THINK. i am not saying that i do have bpd and only assume/suspect i might)
+₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾ MIKU OR SPOINGLE!!!!!!!!!! HE/HIM TRANS MAN MEN KISSER!!!!!! BIRFDAY IS JAN 12 2008!!!!!!POLISH(but i speak mostly english)!!!!!!!!!! i think i might have bpd but until i'll be able to get a diagnosis, take it with a grain of salt or whatever. (keyword here is THINK. i am not saying that i do have bpd and only assume/suspect i might)
 
 
 (◞‸ ◟)💧 DID/INTROJECT/IRL + PRO/COM SHIPPING ANTI!!!!!!!!!! also idc abt ur neopronouns........ bigots, toxic ppl and trump supporters dni
