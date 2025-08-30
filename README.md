@@ -2,6 +2,8 @@
 ![mawie](https://github.com/user-attachments/assets/e53a7acf-3966-4f03-a1df-458a91a40359)
 ![cawwie](https://github.com/user-attachments/assets/5a926aaa-498c-4e0c-9eb4-723433b680f0)<img width="99" height="56" alt="pearl" src="https://github.com/user-attachments/assets/1ce4930d-9806-430f-b21d-c380339eca32" /><img width="99" height="56" alt="marina" src="https://github.com/user-attachments/assets/fcc8c216-be7a-45c2-bd6b-41d02dd4cc29" />
 
+![squidcousins](https://files.catbox.moe/myw8fg.png)
+
 for those too lazy to check out mu rentry
 
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
