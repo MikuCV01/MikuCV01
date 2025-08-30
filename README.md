@@ -11,16 +11,11 @@ for those too lazy to check out mu rentry
 
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
-₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾ MIKU OR SPOINGLE!!!!!!!!!! HE/HIM TRANS MAN MEN KISSER!!!!!! BIRFDAY IS JAN 12 2008!!!!!!POLISH(but i speak mostly english)!!!!!!!!!! i think i might have bpd but until i'll be able to get a diagnosis, take it with a grain of salt or whatever. (keyword here is THINK. i am not saying that i do have bpd and only assume/suspect i might)
-
-
 (◞‸ ◟)💧 DID/INTROJECT/IRL + PRO/COM SHIPPING ANTI!!!!!!!!!! also idc abt ur neopronouns........ bigots, toxic ppl and trump supporters dni
 
 ( ˶ˆᗜˆ˵ ) my vocaloid hyperfixation has lasted abt 6 years i can name almost every vocaloid and vipperloid utau as well as some synthvs, try me.
 
-≽^-⩊-^≼ artist.......... a bad one but nonetheless.....
-
-(๑•̀ᗝ•́)૭ serious ppl dni i cant be serious and i'd be too annoying to you rahhh
+(๑•̀ᗝ•́)૭ serious ppl dni too i cant be serious and i'd be too annoying to you rahhh
 
 <img width="445" height="445" alt="butt" src="https://github.com/user-attachments/assets/fecdfeea-fa65-4264-9561-b01787767693" />
 
