@@ -1,22 +1,11 @@
-![mawie](https://github.com/user-attachments/assets/e53a7acf-3966-4f03-a1df-458a91a40359)
-![cawwie](https://github.com/user-attachments/assets/5a926aaa-498c-4e0c-9eb4-723433b680f0)<img width="99" height="56" alt="pearl" src="https://github.com/user-attachments/assets/1ce4930d-9806-430f-b21d-c380339eca32" /><img width="99" height="56" alt="marina" src="https://github.com/user-attachments/assets/fcc8c216-be7a-45c2-bd6b-41d02dd4cc29" />
+trans gayzo who loves rarepairs and multishipping
 
-![4097_Kuudere](https://github.com/user-attachments/assets/cf97631d-5510-4dbc-bf6e-d5460ba3e23b)
+pro/com shippers and people under 15 dni
 
-[https://www.theotaku.com/quizzes/result/4097](https://www.theotaku.com/quizzes/view/4097/what_dere_type_are_you%3F)
-
-just for funsies lol....... i dont consider myself emotionless but cool!!!
-
-for those too lazy to check out mu rentry
-
-*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
-
-(◞‸ ◟)💧 DID/INTROJECT/IRL + PRO/COM SHIPPING ANTI!!!!!!!!!! also idc abt ur neopronouns........ bigots, toxic ppl and trump supporters dni
-
-( ˶ˆᗜˆ˵ ) my vocaloid hyperfixation has lasted abt 6 years i can name almost every vocaloid and vipperloid utau as well as some synthvs, try me.
-
-(๑•̀ᗝ•́)૭ serious ppl dni too i cant be serious and i'd be too annoying to you rahhh
-
-<img width="445" height="445" alt="butt" src="https://github.com/user-attachments/assets/fecdfeea-fa65-4264-9561-b01787767693" />
+i swear a lot and make stupid jokes so idk....
 
 
+
+have a miku 
+![mimku](https://github.com/user-attachments/assets/543b3a74-7cdc-4abe-b3ae-6b497b5e6d07)
+HOW DO YOU CHANGE THE SIZE OF A PICTURE?????
