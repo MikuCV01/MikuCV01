@@ -1,7 +1,8 @@
 i lov pangcaeks
 
 
-istp trans gayzo who loves rarepairs crackpairs and multishipping
+istp trans gayzo who loves rarepairs crackpairs and multishipping also im a complete idiot when it comes to 
+socializing so if you wanna be friends then straight up tell me lol
 
 pro/com shippers, mcyt fans, roblox players and people under 15 dni
 
