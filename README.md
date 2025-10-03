@@ -1,7 +1,7 @@
 i lov pangcaeks
 
 
-trans gayzo who loves rarepairs crackpairs and multishipping
+istp trans gayzo who loves rarepairs crackpairs and multishipping
 
 pro/com shippers, mcyt fans, roblox players and people under 15 dni
 
