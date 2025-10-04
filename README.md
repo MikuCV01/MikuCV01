@@ -13,5 +13,6 @@ i swear a lot and make stupid jokes so idk....
 
 
 have a miku 
-![mimku](https://github.com/user-attachments/assets/543b3a74-7cdc-4abe-b3ae-6b497b5e6d07)
+![miku](https://github.com/user-attachments/assets/9f230896-47bb-4d9b-b70f-dfb4bdf23005)
+
 HOW DO YOU CHANGE THE SIZE OF A PICTURE?????
