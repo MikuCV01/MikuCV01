@@ -1,4 +1,5 @@
 i lov pangcaeks
+perchloryl on discord
 
 
 istp trans gayzo who loves rarepairs crackpairs and multishipping also im a complete idiot when it comes to 
