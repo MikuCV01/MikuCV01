@@ -1,4 +1,5 @@
-<p align="center"><img width="1500" height="1000" alt="nene" src="https://github.com/user-attachments/assets/633c41c2-7909-42c9-b1df-fb0d412908b4" />
+<p align="center"><img width="1500" height="700" alt="nene" src="https://github.com/user-attachments/assets/139dd0c7-266f-46a3-82c8-7a86c9206162" />
+
 <p align="center"> please please int im friends with markiplier trust me
 
 <p align="center"> -
