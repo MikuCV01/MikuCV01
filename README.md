@@ -1,15 +1,7 @@
-istp trans gayzo who loves rarepairs crackpairs and multishipping also im a complete idiot when it comes to 
-socializing so if you wanna be friends then straight up tell me lol
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4hzitgzddspxu4u4ddp4ospzv&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=cf9ee6)](https://github.com/kittinan/spotify-github-profile)
 
-pro/com shippers, mcyt fans, kpop demon pissers, roblox players and people under 15 dni
-
-i swear a lot and make stupid jokes so idk....
-
-PLEASE INT im too shy to interact by myself...... im friends with markiplier (real trust me)
-
-
-
-have a miku 
-![miku](https://github.com/user-attachments/assets/9f230896-47bb-4d9b-b70f-dfb4bdf23005)
-
-HOW DO YOU CHANGE THE SIZE OF A PICTURE?????
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=4hzitgzddspxu4u4ddp4ospzv&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=cf9ee6">
+  </a>
+</p>
