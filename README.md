@@ -1,6 +1,7 @@
 <p align="center"><img width="1500" height="700" alt="nene" src="https://github.com/user-attachments/assets/139dd0c7-266f-46a3-82c8-7a86c9206162" />
 
 <p align="center"> please please int im friends with markiplier trust me
+<p align="center"> dottore simps dni u lowkey stink
 
 <p align="center"> -
 <p align="center"> -
