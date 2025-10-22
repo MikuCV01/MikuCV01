@@ -2,6 +2,7 @@
 
 <p align="center"> please please int im friends with markiplier trust me
 <p align="center"> dottore simps dni u lowkey stink
+<p align="center"> i change my style everyday so expect different looking ponies lol
 
 <p align="center"> -
 <p align="center"> -
